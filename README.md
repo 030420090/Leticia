@@ -9,3 +9,5 @@
 •𝐌𝐢𝐧𝐡𝐚 𝐟𝐨𝐫𝐦𝐚 𝐝𝐞 𝐜𝐨𝐧𝐭𝐚𝐭𝐨 𝐞 𝐩𝐨𝐫 𝐞-𝐦𝐚𝐢𝐥 𝐞 𝐚𝐪𝐮𝐢 𝐞𝐬𝐭𝐚 𝐜𝐚𝐬𝐨 𝐪𝐮𝐞𝐢𝐫𝐚𝐦
 -leticia.cardoso.araujo@escola.pr.gov.br
 
+![image](https://github.com/user-attachments/assets/444650dc-7915-42f5-b7b4-33fb10f454ff)
+
